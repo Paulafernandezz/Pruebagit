@@ -1,4 +1,4 @@
 
 # Paula Fernandez Lopez
 Paula eres buena gente 
-aunque seas bajita 
+aunque seas rubia 
