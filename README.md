@@ -1,5 +1,4 @@
 
 # Paula Fernandez Lopez
-Paula eres buena gente 
-aunque seas rubia 
-aunque seas morena 
+Diego eres buena gente 
+aunque seas musico 
